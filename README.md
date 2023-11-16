@@ -20,3 +20,8 @@ Result
 
 
 ![word2](https://github.com/Shivam8369/word-counter/assets/96806019/3c83449f-0240-4329-a329-4a4046e48903)
+
+
+visit the site:
+
+https://t.ly/W_NI8
